@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @larry18
 - 👀 I’m interested in Technology. 
-- 🌱 I’m currently learning Blockchain, AI, Automation, IoT & Robotics.
+- 🌱 I’m currently learning E-commerce, Blockchain, AI, Automation, IoT & Robotics.
 - 💞️ I’m looking to collaborate on any project that can contribute for humanity. 
 - 📫 How to reach me leave comment I will reach you out. 
 
